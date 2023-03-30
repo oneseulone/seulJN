@@ -1,2 +1,2 @@
-# @realseulJN
-[TWITTER ☄️](https://twitter.com/realseuljn)
+# ʀᴇᴀʟsᴇᴜʟᴊɴ
+[ᴛᴡɪᴛᴛᴇʀ ☄️](https://twitter.com/realseuljn)
