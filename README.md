@@ -1,2 +1,2 @@
 # 
-[TWITTER](https://twitter.com/realseuljn)
+[TWITTER ☄️](https://twitter.com/realseuljn)
