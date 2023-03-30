@@ -1,3 +1,3 @@
 # @ʀᴇᴀʟsᴇᴜʟᴊɴ 
-[ɢɪᴛʜᴜʙ](https://github.com/seuljn) <br>
+[ɢɪᴛʜᴜʙ ⚫](https://github.com/seuljn) <br>
 [ᴛᴡɪᴛᴛᴇʀ ☄️](https://twitter.com/realseuljn)
